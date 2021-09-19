@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Daniverzum
 - 👀 I’m interested in mccoding?
-- 🌱 I’m currently learning computer Science
+- 🌱 I’m currently learning computer science
